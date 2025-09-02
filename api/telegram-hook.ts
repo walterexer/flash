@@ -27,7 +27,7 @@ How to make dat REAL cash using all sorts of proven methods:
 
 - Abusing employment benefits for free funds
 
-- Gambling and rental scams for easy dough
+- Gambling and rental plays for easy dough
 
 - And way more!](${targetUrl})
 
